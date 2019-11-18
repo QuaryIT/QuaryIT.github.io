@@ -1,1 +1,0 @@
-# QuaryIT.github.io
